@@ -11,9 +11,7 @@ Lee todo en orden, no saltes videos sino puedes acabarte confundiendo con las di
 
 *`"La posesión del conocimiento, si no va acompañada por una manifestación y expresión en la práctica y en la obra, es lo mismo que el enterrar metales preciosos: una cosa vana e inútil"`* 
 <br/>*<p align="right"> El Kybalion.</p>*
-<br/>
-<hr/>
-### Introduccion:
+## Introduccion
 
 El despertar de la conciencia del ser humano es la unica cosa que realmente vale la pena, segun estudios cientificos, el humano promedio tiene aproximadamente 3% de conciencia y 97 % de subconciente, por lo tanto es correcto afirmar que el ser humano es un robot viviente. Despertando la conciencia el robot transciente, sale del sueño, deja de ser el animal intelectual, y se convierte en intelectual (Hacemos referencia al intelecto mas no a la estupidez que la sociedad llama intelecto, esto es algo mucho mas profundo, no es llenarse de conocimiento y libros estupidos para tener un carton y presumir... es mil veces mas profundo.).
 
