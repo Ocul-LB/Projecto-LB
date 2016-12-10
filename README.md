@@ -104,17 +104,31 @@ En cualquier momento si deseas, puedes leer o escuchar audiolibros del maestro l
 Tambien seria bueno escuchar `"los grandes iniciados Los Misterios de Egipto"`. Edouard Schure,  https://www.youtube.com/watch?v=N802kP328w0
  
 <hr/> 
-**OTROS VIDEOS RECOMENDADOS** (Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas en profundidad):  <br/>
+### Tercera Parte
 
-> https://www.youtube.com/watch?v=J_ncTEs92ME (Un video para meditar mas profundamente con sabias e interesantes recomendaciones) <br/>
+Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas en profundidad) y en el orden recomendado:  <br/>
+
+1. https://www.youtube.com/watch?v=J_ncTEs92ME (Un video para meditar mas profundamente con sabias e interesantes recomendaciones)
+
+  1. https://www.youtube.com/watch?v=Pjfkxw36P_s&t=5s (Espiritualidad segun Lao Tse)
+  2. https://www.youtube.com/watch?v=yijRIjELQ9g (La religion Segun Lao Tse)
  
-> https://www.youtube.com/watch?v=uN6Wxr2bQ8I (*__No__ lo veas si tu __NO__ has aprendido en profundidad las leyes hermeticas*, Aqui se habla Sobre el ego, sin embargo hay una afirmacion "el ego no se puede eliminar", es solo una percepcion, el autor lo trata como la ley hermetica de los polos, ya que todo lo opuesto difiere solo en grados, entonces para el no se esta eliminando se esta polarizando, ustedes llamenlo eliminar el ego o polarizar, como desean y sientan que es mejor, mas no se irriten ni se confundan por esta idea, por eso insisto en que lean las leyes hermeticas sino esto les parece muy contradictorio... EL ego es malo, polarizeron o eliminenlo, esto lo han enseñado inumerables maestros, no tienen que vivir con el.) <br/>
- 
-> https://www.youtube.com/watch?v=zupOEzsTwdY (opcional e interesante: si has trabajado con telekinesis te vendra de maravilla este video) <br/>
+2. https://www.youtube.com/watch?v=uN6Wxr2bQ8I (*__No__ lo veas si tu __NO__ has aprendido en profundidad las leyes hermeticas*, Aqui se habla Sobre el ego, sin embargo hay una afirmacion "el ego no se puede eliminar", es solo una percepcion, el autor lo trata como la ley hermetica de los polos, ya que todo lo opuesto difiere solo en grados, entonces para el no se esta eliminando se esta polarizando, ustedes llamenlo eliminar el ego o polarizar, como desean y sientan que es mejor, mas no se irriten ni se confundan por esta idea, por eso insisto en que lean las leyes hermeticas sino esto les parece muy contradictorio... EL ego es malo, polarizeron o eliminenlo, esto lo han enseñado inumerables maestros, no tienen que vivir con el.)
+
+3. https://www.youtube.com/watch?v=zupOEzsTwdY (opcional e interesante: si has trabajado con telekinesis te vendra de maravilla este video)
+
+###Cuarta Parte (El inicio)
+
+Apartir de este momento ya sois aves libres, solo os queda seguir mis ultimas recomendaciones
+
+1. Ve de nuevo lo que creas conveniente, siempre habran cosas por comprender
+2. Aprende del canal ["Dios segun Buda"](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/videos) o mejor mira [su lista de reproduccion](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/playlists), **ellos expresan las distintas filosofia, sabiduria e idelas de los maestros (Buda, Jesus, Lao Tse, Osho, Maoma, krisna, etc..)**, que nos precedieron y que el mundo los ha considera iluminados, os aseguro que alli podeis aprender demasiado, y comprender cueando esteis en la practica (recordad que si no practicais entonces solo teneis basura en vuestra cabeza y nunca llegareis a comprender sus palabras.)
+3. No os volvais locos con las distintas filosofias, sean naturales, dejen que su ser intereior los guia, recordad esto, *__`"No os centeris en conocer avariciosamente, en si hay un Dios o no, enfocaros en la conciencia y luego todo lo que querias saber vendra y tocara a su puerta, todo llegara añadidura"`__*
 
 **Videos De interes** (No son necesarios, solo por gusto) <br/>
 
 > https://www.youtube.com/watch?v=7KfPRfFJbx0 (Contiene informacion sobre las sociedades secretas, es un video de interes) <br/>
+> https://www.youtube.com/watch?v=v5Fw9pS3VHk&t (ADVERTENCIA: CONTENIDO MUY FUERTE, Nota: los Masones son un grupo que se enfocan en el trabajo de la alquimia, sin embargo las sociedades secretas parece que se han centrado en difamarlos, utilizando su nombre en sus cultos y estupideces enfermisas, si consultais a fondo de su doctrina, esta basada en los mismos principios de las tantas culturas sabias que nos precedieron.)
 > https://www.youtube.com/watch?v=RzOcMiJZKmE (Complemento de las socidades secretas, mas informacion de interes) <br/>
  
 <hr/>
