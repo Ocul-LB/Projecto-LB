@@ -22,7 +22,7 @@ Si algo te parece raro o contradictorio con tus ideologias, debes saber que todo
 
 Te recuerdo que todos los videos aqui, es posible que en un futuro tengas que volver a verlos, cuando tengas la conciencia mas abierta, entonces entenderas y descubriras cosas que al principio te parecian raras, que no comprendias porque no sabias escuchar...
 
-###Primera parte (Concientizando)
+### Primera parte (Preparacion y Concientizacion )
 
 Este primer video corresponde a una lista de reproduccion ordenada, que te ayudara a entender muchas cosas, es necesario que veas todos los videos y los comprendas. Inicia desde aqui:
 https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5 (Esto es despertar de la conciencia, muerte del ego, alquimia y preparacion para las salidas en cuerpo astral o proyeccion de la conciencia en planos superiores)
@@ -65,7 +65,7 @@ Me cuido cuando busco equilibrio"
 ```
 <br/>
 
-###Segunda parte (El universo)
+### Segunda parte (El universo y la Mente)
 Los invito a tomar una nocion basica de las leyes hermeticas (leyes casi indebatibles ante la fisica moderna, salvo algunas como el karma o dharma)
 https://www.youtube.com/watch?v=q58CDOw2jnY
  
@@ -117,13 +117,14 @@ Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas
 
 3. https://www.youtube.com/watch?v=zupOEzsTwdY (opcional e interesante: si has trabajado con telekinesis te vendra de maravilla este video)
 
-###Cuarta Parte (El principiod el despertar)
+### Cuarta Parte (El principio el despertar)
 
 Apartir de este momento ya sois aves libres, solo os queda seguir mis ultimas recomendaciones
 
 1. Ve de nuevo lo que creas conveniente, siempre habran cosas por comprender
 2. Aprende del canal ["Dios segun Buda"](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/videos) o mejor mira [su lista de reproduccion](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/playlists), **ellos expresan las distintas filosofia, sabiduria e idelas de los maestros (Buda, Jesus, Lao Tse, Osho, Maoma, krisna, etc..)**, que nos precedieron y que el mundo los ha considera iluminados, os aseguro que alli podeis aprender demasiado, y comprender cueando esteis en la practica (recordad que si no practicais entonces solo teneis basura en vuestra cabeza y nunca llegareis a comprender sus palabras.)
 3. No os volvais locos con las distintas filosofias, sean naturales, dejen que su ser intereior los guia, recordad esto, *__`"No os centeris en conocer avariciosamente, en si hay un Dios o no, enfocaros en la conciencia y luego todo lo que querias saber vendra y tocara a su puerta, todo llegara añadidura"`__*
+4. Lo que habeis aprendido de la alquimia en la primera parte (Transmutacion y muerte del ego), es fundamental y os recomiendo trabajeis en ello con naturalidad, de esta forma empezareis a sentir los sintomas para las salidas en astral, si es que ha este punto no lo habies logrado.
 
 **Videos De interes** (No son necesarios, solo por gusto) <br/>
 
