@@ -119,10 +119,10 @@ Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas
 
 ### Cuarta Parte (El principio el despertar)
 
-Apartir de este momento ya sois aves libres, solo os queda seguir mis ultimas recomendaciones
+Apartir de este momento ya sois aves libres, solo ofrecerles nuestras ultimas recomendaciones
 
-1. Ve de nuevo lo que creas conveniente, siempre habran cosas por comprender
-2. Aprende del canal ["Dios segun Buda"](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/videos) o mejor mira [su lista de reproduccion](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/playlists), **ellos expresan las distintas filosofia, sabiduria e idelas de los maestros (Buda, Jesus, Lao Tse, Osho, Maoma, krisna, etc..)**, que nos precedieron y que el mundo los ha considera iluminados, os aseguro que alli podeis aprender demasiado, y comprender cueando esteis en la practica (recordad que si no practicais entonces solo teneis basura en vuestra cabeza y nunca llegareis a comprender sus palabras.)
+1. Ve de nuevo lo que creas conveniente, siempre habran cosas por comprender en la medida en que tu conciencia se abra.
+2. Podrias aprender del canal ["Dios segun Buda"](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/videos) o mejor mira [su lista de reproduccion](https://www.youtube.com/channel/UCD_BAhz0prQfWVPm9Fqr82w/playlists), **ellos expresan las distintas filosofia, sabiduria e idelas de los maestros (Buda, Jesus, Lao Tse, Osho, Maoma, krisna, etc..)**, que nos precedieron y que el mundo los ha considera iluminados, os aseguro que alli podeis aprender demasiado, y comprender cueando esteis en la practica (recordad que si no practicais entonces solo teneis basura en vuestra cabeza y nunca llegareis a comprender sus palabras.)
 3. No os volvais locos con las distintas filosofias, sean naturales, dejen que su ser intereior los guia, recordad esto, *__`"No os centreis en conocer avariciosamente, en si hay un Dios o no, enfocaros en la conciencia y luego todo lo que querias saber vendra y tocara a su puerta, todo llegara por añadidura"`__*
 4. Lo que habeis aprendido de la alquimia en la primera parte (Transmutacion y muerte del ego), es fundamental y os recomiendo trabajeis en ello con naturalidad, de esta forma empezareis a sentir los sintomas para las salidas en astral, si es que ha este punto no lo habies logrado.
 
