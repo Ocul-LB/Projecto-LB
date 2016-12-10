@@ -22,7 +22,7 @@ Si algo te parece raro o contradictorio con tus ideologias, debes saber que todo
 
 Te recuerdo que todos los videos aqui, es posible que en un futuro tengas que volver a verlos, cuando tengas la conciencia mas abierta, entonces entenderas y descubriras cosas que al principio te parecian raras, que no comprendias porque no sabias escuchar...
 
-###Primera parte
+###Primera parte (Concientizando)
 
 Este primer video corresponde a una lista de reproduccion ordenada, que te ayudara a entender muchas cosas, es necesario que veas todos los videos y los comprendas. Inicia desde aqui:
 https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5 (Esto es despertar de la conciencia, muerte del ego, alquimia y preparacion para las salidas en cuerpo astral o proyeccion de la conciencia en planos superiores)
@@ -65,7 +65,7 @@ Me cuido cuando busco equilibrio"
 ```
 <br/>
 
-###Segunda parte
+###Segunda parte (El universo)
 Los invito a tomar una nocion basica de las leyes hermeticas (leyes casi indebatibles ante la fisica moderna, salvo algunas como el karma o dharma)
 https://www.youtube.com/watch?v=q58CDOw2jnY
  
@@ -104,7 +104,7 @@ En cualquier momento si deseas, puedes leer o escuchar audiolibros del maestro l
 Tambien seria bueno escuchar `"los grandes iniciados Los Misterios de Egipto"`. Edouard Schure,  https://www.youtube.com/watch?v=N802kP328w0
  
 <hr/> 
-### Tercera Parte
+### Tercera Parte (Abriendo las alas)
 
 Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas en profundidad) y en el orden recomendado:  <br/>
 
@@ -117,7 +117,7 @@ Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas
 
 3. https://www.youtube.com/watch?v=zupOEzsTwdY (opcional e interesante: si has trabajado con telekinesis te vendra de maravilla este video)
 
-###Cuarta Parte (El inicio)
+###Cuarta Parte (El principiod el despertar)
 
 Apartir de este momento ya sois aves libres, solo os queda seguir mis ultimas recomendaciones
 
