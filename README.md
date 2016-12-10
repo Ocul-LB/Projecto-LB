@@ -127,9 +127,8 @@ Apartir de este momento ya sois aves libres, solo os queda seguir mis ultimas re
 4. Lo que habeis aprendido de la alquimia en la primera parte (Transmutacion y muerte del ego), es fundamental y os recomiendo trabajeis en ello con naturalidad, de esta forma empezareis a sentir los sintomas para las salidas en astral, si es que ha este punto no lo habies logrado.
 
 **_"¡Oh, no dejes que se extinga la llama!  Protegida edad tras edad en su oscura caverna en sus santos templos 
-cuidada. ¡no dejes que se extinga la llama!" 
-<p align="right">Kybalion</p> <br/>
-Haced la gran obra, ayudad pues a despertar a vuestros hermanos, pasad estos valiosos conocimientos cuando hayais madurado espiritualmente_**
+cuidada. ¡no dejes que se extinga la llama!". El Kybalion<br/>
+Haced la gran obra, ayudad pues a despertar a las masas, pasad los valiosisimos conocimientos cuando hayais madurado espiritualmente_**
 
 **Videos De interes** (No son necesarios, solo por gusto) <br/>
 
