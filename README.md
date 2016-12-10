@@ -7,7 +7,7 @@
 <img src="https://i.imgur.com/XjNHJcO.jpg" title="Lao Tse">
 </p>
 
-Lee todo en orden, no saltes videos sino puedes acabarte confundiendo con las distintas idealogias. Todo esta diseñado para que lo entiendas segun tus niveles de conocimiento adquiridos a traves del estudio y la practica.<br/>
+Lee todo en orden, no saltes videos sino puedes acabarte confundiendo con las distintas idealogias. Todo esta diseñado para que lo entiendas segun tus niveles de conocimiento adquiridos a traves del estudio y la practica. `La posesión del conocimiento, si no va acompañada por una manifestación y expresión en la práctica y en la obra, es lo mismo que el enterrar metales preciosos: una cosa vana e inútil` Kybalion.<br/>
 
 ```diff
 +- Si tienes interes por el desarrollo de facultades o comprobarlas mediante la practica, ve a la seccion Kinesis
