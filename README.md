@@ -1,13 +1,13 @@
 <img align="right" src ="https://i.imgur.com/8meLXW7.jpg" width="100" height="100"/>
 # Projecto-LB 1.1.0
 
-**Estas son recomendaciones** cuyo objetivo es ayudarte al despertar de la conciencia, la iniciacion en el mundo del esoterismo, ocultimo, misterios menores etc. <br>
+**Estas son recomendaciones** cuyo objetivo es ayudarte al despertar de la conciencia, la iniciacion en el mundo del esoterismo, ocultimo, misterios menores etc.<br>
 
 <p align="center">
 <img src="https://i.imgur.com/XjNHJcO.jpg" title="Lao Tse">
 </p>
 
-Lee todo en orden, no saltes videos sino puedes acabarte confundiendo con las distintas idealogias. Todo esta diseñado para que lo entiendas segun tus niveles de conocimiento adquiridos a traves del estudio y la practica.
+Leed todo en orden, no saltes videos sino puedes acabarte confundiendo con las distintas idealogias. Todo esta diseñado para que lo entiendas segun tus niveles de conocimiento adquiridos a traves del estudio y la practica.
 
 *`"La posesión del conocimiento, si no va acompañada por una manifestación y expresión en la práctica y en la obra, es lo mismo que el enterrar metales preciosos: una cosa vana e inútil"`* 
 <br/>*<p align="right"> El Kybalion.</p>*
