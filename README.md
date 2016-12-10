@@ -13,7 +13,11 @@ Lee todo en orden, no saltes videos sino puedes acabarte confundiendo con las di
 <br/>*<p align="right"> El Kybalion.</p>*
 <br/>
 <hr/>
-**Introduccion:** Si algo te parece raro o contradictorio con tus ideologias, debes saber que todo es energia, todo vibra, todo esta en movimiento, esto lo puedes comprobar con la ecucacion de A. Einsten o viendo videos de fisica cuantica.
+### Introduccion:
+
+El despertar de la conciencia del ser humano es la unica cosa que realmente vale la pena, segun estudios cientificos, el humano promedio tiene aproximadamente 3% de conciencia y 97 % de subconciente, por lo tanto es correcto afirmar que el ser humano es un robot viviente. Despertando la conciencia el robot transciente, sale del sueño, deja de ser el animal intelectual, y se convierte en intelectual (Hacemos referencia al intelecto mas no a la estupidez que la sociedad llama intelecto, esto es algo mucho mas profundo, no es llenarse de conocimiento y libros estupidos para tener un carton y presumir... es mil veces mas profundo.).
+
+Si algo te parece raro o contradictorio con tus ideologias, debes saber que todo es energia, todo vibra, todo esta en movimiento, esto lo puedes comprobar con la ecucacion de A. Einsten o viendo videos de fisica cuantica.
 
 **Entiende que:**
 > "Tu nivel mas alto de ignorancia es cuando rechazas algo de lo cual no sabes nada." *Wayne Dyer*
