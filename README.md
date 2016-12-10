@@ -12,16 +12,7 @@ Lee todo en orden, no saltes videos sino puedes acabarte confundiendo con las di
 *`"La posesión del conocimiento, si no va acompañada por una manifestación y expresión en la práctica y en la obra, es lo mismo que el enterrar metales preciosos: una cosa vana e inútil"`* 
 <br/>*<p align="right"> El Kybalion.</p>*
 <br/>
-
-```diff
-+- Si tienes interes por el desarrollo de facultades o comprobarlas mediante la practica, ve a la seccion Kinesis
-+- Aun asi, te recomiendo que no le des tanta importancia a esto y sigas viendo el orden recomendado.
--+ Lo verdaderamente importante no son las facultades, sino el despertar de tu conciencia.
-```
-<p align="right">
-<a href="https://github.com/Ocul-LB/Projecto-LB/tree/master/kinesis"><b>Seccion de Kinesis</b></a>
-</p>
-
+<hr/>
 **Introduccion:** Si algo te parece raro o contradictorio con tus ideologias, debes saber que todo es energia, todo vibra, todo esta en movimiento, esto lo puedes comprobar con la ecucacion de A. Einsten o viendo videos de fisica cuantica.
 
 **Entiende que:**
@@ -91,6 +82,17 @@ En este punto ya deberias estar practicando las salidas en astral, si es que ya 
 <a href="https://github.com/Ocul-LB/Projecto-LB/tree/master/Astral">Seccion Astral</a>
 </b>
 </p>
+
+Nota:
+```diff
++- Si tienes interes por el desarrollo de facultades o comprobarlas mediante la practica, ve a la seccion Kinesis
++- pero primero te recomiendo que abras tu conciencia, sigue el orden que te recomendamos
+-+ Lo verdaderamente importante no son las facultades, sino el despertar de tu conciencia.
+```
+<p align="right">
+<a href="https://github.com/Ocul-LB/Projecto-LB/tree/master/kinesis"><b>Seccion de Kinesis</b></a>
+</p>
+
  
 En cualquier momento si deseas, puedes leer o escuchar audiolibros del maestro lao tse (maestro reconocido por su gran sabiduria), libros como tao te ching, tao te king (El maestro lao tse es un tanto dificil de entender, y su filosofia es muy diferente a la de los otros maestros como jesus, buda, o hermes, sin embargo de todos hay algo que aprender)
  
