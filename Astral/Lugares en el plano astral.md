@@ -1,4 +1,4 @@
-Autor:**Uriel**
+Autor: **Uriel**
 ##Guia de algunos lugares en el plano astral
 
 A continuación verás la primera guía de lugares interesantes en el Mundo de los Sueños. Tan sólo es una breve muestra de lo que puedes visitar allá. Las posibilidades son prácticamente infinitas pero pretendemos ir ampliándola de forma continua. Por supuesto, tú también puedes colaborar.
