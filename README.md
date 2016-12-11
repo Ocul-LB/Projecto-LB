@@ -98,9 +98,6 @@ Nota:
 <a href="https://github.com/Ocul-LB/Projecto-LB/tree/master/kinesis"><b>Seccion de Kinesis</b></a>
 </p>
 
- 
-En cualquier momento si deseas, puedes leer o escuchar audiolibros del maestro lao tse (maestro reconocido por su gran sabiduria), libros como tao te ching, tao te king (El maestro lao tse es un tanto dificil de entender, y su filosofia es muy diferente a la de los otros maestros como jesus, buda, o hermes, sin embargo de todos hay algo que aprender)
- 
 Tambien seria bueno escuchar `"los grandes iniciados Los Misterios de Egipto"`. Edouard Schure,  https://www.youtube.com/watch?v=N802kP328w0
  
 <hr/> 
