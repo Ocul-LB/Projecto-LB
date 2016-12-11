@@ -110,9 +110,9 @@ Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas
   1. [Espiritualidad segun Lao Tse](https://www.youtube.com/watch?v=Pjfkxw36P_s&t)
   2. [La religion Segun Lao Tse](https://www.youtube.com/watch?v=yijRIjELQ9g)
  
-2. https://www.youtube.com/watch?v=uN6Wxr2bQ8I (*__No__ lo veas si tu __NO__ has aprendido en profundidad las leyes hermeticas*, Aqui se habla Sobre el ego, sin embargo hay una afirmacion "el ego no se puede eliminar", es solo una percepcion, el autor lo trata como la ley hermetica de los polos, ya que todo lo opuesto difiere solo en grados, entonces para el no se esta eliminando se esta polarizando, ustedes llamenlo eliminar el ego o polarizar, como desean y sientan que es mejor, mas no se irriten ni se confundan por esta idea, por eso insisto en que lean las leyes hermeticas sino esto les parece muy contradictorio... EL ego es malo, polarizeron o eliminenlo, esto lo han enseñado inumerables maestros, no tienen que vivir con el.)
+2. [El Ego](https://www.youtube.com/watch?v=uN6Wxr2bQ8I) (*__No__ lo veas si tu __NO__ has aprendido en profundidad las leyes hermeticas*, Aqui se habla Sobre el ego, sin embargo hay una afirmacion "el ego no se puede eliminar", es solo una percepcion, el autor lo trata como la ley hermetica de los polos, ya que todo lo opuesto difiere solo en grados, entonces para el no se esta eliminando se esta polarizando, ustedes llamenlo eliminar el ego o polarizar, como desean y sientan que es mejor, mas no se irriten ni se confundan por esta idea, por eso insisto en que lean las leyes hermeticas sino esto les parece muy contradictorio... EL ego es malo, polarizeron o eliminenlo, esto lo han enseñado inumerables maestros, no tienen que vivir con el.)
 
-3. https://www.youtube.com/watch?v=zupOEzsTwdY (opcional e interesante: si has trabajado con telekinesis te vendra de maravilla este video)
+3. [El poder de la Mente](https://www.youtube.com/watch?v=zupOEzsTwdY) (opcional e interesante: si has trabajado con telekinesis te vendra de maravilla este video)
 
 ### Cuarta Parte (El principio el despertar)
 
