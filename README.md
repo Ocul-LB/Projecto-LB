@@ -67,14 +67,14 @@ Me cuido cuando busco equilibrio"
 
 ### Segunda parte (El universo y la Mente)
 Los invito a tomar una nocion basica de las leyes hermeticas (leyes casi indebatibles ante la fisica moderna, salvo algunas como el karma o dharma)
-https://www.youtube.com/watch?v=q58CDOw2jnY
+[Leyes Metafisicas](https://www.youtube.com/watch?v=q58CDOw2jnY)
  
-Luego ver las leyes hermeticas a fondo (este video dura casi 4 horas)
+Ahora seria bueno ver las leyes hermeticas a fondo (este video dura casi 4 horas)
 es de un maestro conocido como hermes trismegistro (en la biblia creo que se le conoce como enoc)
-https://www.youtube.com/watch?v=4QmmmCPKKEs (video los tres iniciados del libro kybalion, si no les gusta escucharlo lo pueden leer.)
+[El Kybalion - Tres iniciados](https://www.youtube.com/watch?v=4QmmmCPKKEs) (Este es un audio libro, si gustan pueden buscarlo en su versio PDF)
  
 Este video corresponde a una supuesta enseñansa de las tablas de esmeralda de thoth (es un Dios venerado por los egipcion y a quien realmente hace referencia es al mismo hermes trismegisto) os lo he sugerido, dado que tiene algunas afirmaciones de las que podeis aprender bastante.
-https://www.youtube.com/watch?v=IBOA8e9qV7g
+[Las tablas esmeralda de Thoth](https://www.youtube.com/watch?v=IBOA8e9qV7g)
 
 En este punto ya deberias estar practicando las salidas en astral, si es que ya no saliste, de igual manera esto puede tardar mucho o muy poco, depende de tus niveles de conciencia y la voluntad. Te aconsejo seas natural, no te apresures ni te desesperes, *"las cosas grandes crecen en silencio"*.
 
@@ -108,10 +108,10 @@ Tambien seria bueno escuchar `"los grandes iniciados Los Misterios de Egipto"`. 
 
 Importantes, miralos preferiblemente despues de haber visto las leyes hermeticas en profundidad) y en el orden recomendado:  <br/>
 
-1. https://www.youtube.com/watch?v=J_ncTEs92ME (Un video para meditar mas profundamente con sabias e interesantes recomendaciones)
+1. [Metodo de ilumnacion](https://www.youtube.com/watch?v=J_ncTEs92ME) (Un video para meditar mas profundamente con sabias e interesantes recomendaciones)
 
-  1. https://www.youtube.com/watch?v=Pjfkxw36P_s&t=5s (Espiritualidad segun Lao Tse)
-  2. https://www.youtube.com/watch?v=yijRIjELQ9g (La religion Segun Lao Tse)
+  1. [Espiritualidad segun Lao Tse](https://www.youtube.com/watch?v=Pjfkxw36P_s&t)
+  2. [La religion Segun Lao Tse](https://www.youtube.com/watch?v=yijRIjELQ9g)
  
 2. https://www.youtube.com/watch?v=uN6Wxr2bQ8I (*__No__ lo veas si tu __NO__ has aprendido en profundidad las leyes hermeticas*, Aqui se habla Sobre el ego, sin embargo hay una afirmacion "el ego no se puede eliminar", es solo una percepcion, el autor lo trata como la ley hermetica de los polos, ya que todo lo opuesto difiere solo en grados, entonces para el no se esta eliminando se esta polarizando, ustedes llamenlo eliminar el ego o polarizar, como desean y sientan que es mejor, mas no se irriten ni se confundan por esta idea, por eso insisto en que lean las leyes hermeticas sino esto les parece muy contradictorio... EL ego es malo, polarizeron o eliminenlo, esto lo han enseñado inumerables maestros, no tienen que vivir con el.)
 
@@ -132,8 +132,8 @@ Haced la gran obra, ayudad pues a despertar a las masas, pasad los valiosisimos 
 
 **Videos De interes** (No son necesarios, solo por gusto) <br/>
 
-> https://www.youtube.com/watch?v=7KfPRfFJbx0 (Contiene informacion sobre las sociedades secretas, es un video de interes) <br/>
-> https://www.youtube.com/watch?v=v5Fw9pS3VHk&t (ADVERTENCIA: CONTENIDO MUY FUERTE, Nota: los Masones son un grupo que se enfocan en el trabajo de la alquimia, sin embargo las sociedades secretas parece que se han centrado en difamarlos, utilizando su nombre en sus cultos y estupideces enfermisas, si consultais a fondo de su doctrina, esta basada en los mismos principios de las tantas culturas sabias que nos precedieron.)
+> [Amos del Mundo](https://www.youtube.com/watch?v=7KfPRfFJbx0) (Contiene informacion sobre las sociedades secretas, es un video de interes) <br/>
+> [El oscuro mundo del **** Parte 4](https://www.youtube.com/watch?v=v5Fw9pS3VHk&t) y [Parte 5](https://www.youtube.com/watch?v=Zu-5fDfCS1Q) (ADVERTENCIA: CONTENIDO MUY FUERTE, Nota: los Masones son un grupo que se enfocan en el trabajo de la alquimia, sin embargo las sociedades secretas parece que se han centrado en difamarlos, utilizando su nombre en sus cultos y estupideces enfermisas, si consultais a fondo de su doctrina, esta basada en los mismos principios de las tantas culturas sabias que nos precedieron.)
 > https://www.youtube.com/watch?v=RzOcMiJZKmE (Complemento de las socidades secretas, mas informacion de interes) <br/>
  
 <hr/>
