@@ -24,8 +24,7 @@ Te recuerdo que todos los videos aqui, es posible que en un futuro tengas que vo
 
 ### Primera parte (Preparacion y Concientizacion )
 
-Este primer video corresponde a una lista de reproduccion ordenada, que te ayudara a entender muchas cosas, es necesario que veas todos los videos y los comprendas. Inicia desde aqui:
-https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5 (Esto es despertar de la conciencia, muerte del ego, alquimia y preparacion para las salidas en cuerpo astral o proyeccion de la conciencia en planos superiores)
+Este primer video corresponde a una lista de reproduccion ordenada, que te ayudara a entender muchas cosas, es necesario que veas todos los videos y los comprendas. Inicia desde aqui ["El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Alli se trabaja la meditacion, muerte del ego, alquimia y preparacion para las salidas en cuerpo astral o proyeccion de la conciencia en planos superiores)
 
 <p align="center">
 <img src="https://i.imgur.com/hM2zGNS.png" title="Carl Jung" height="300" width="400">
