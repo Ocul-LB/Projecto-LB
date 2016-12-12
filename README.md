@@ -64,7 +64,7 @@ Me cuido cuando leo y estudio
 Me cuido cuando busco equilibrio"
  
 ```
-para de adentrarse en la segunda parte aspiro que ayan visto todos los videos propuestos anteriormente, o al menos la serie "El Despertar De La Conciencia"
+para de adentrarse en la segunda parte aspiro que Hayan visto todos los videos propuestos anteriormente, o al menos la serie "El Despertar De La Conciencia"
 
 <br/>
 
