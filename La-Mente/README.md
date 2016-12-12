@@ -1,4 +1,5 @@
-## Él todo es mente; el Universo es mental
+## Él todo es mente; el Universo es mental <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
+
 Esta seccion fue creada con el objetivo de que comprendas todo lo necesario para poder dominar cada cosa del universo mental.
 
 <p align="center"><img src="https://i.imgur.com/ozFCemH.jpg" height="200" lenght="200"></p>
