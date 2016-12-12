@@ -84,8 +84,8 @@ En este punto ya deberias estar practicando las salidas en astral, si es que ya 
 - Si quieres probar nuevos metodos para salir al astral, ve la seccion Astral
 ```
 <p align='right'>
-<b><a href="https://github.com/Ocul-LB/Projecto-LB/tree/master/La-Mente">Seccion de la Mente</a><br/>
-<a href="https://github.com/Ocul-LB/Projecto-LB/tree/master/Astral">Seccion Astral</a>
+<b><a href="https://github.com/Ocul-LB/Projecto-LB/wiki/Seccion-de-la-Mente">Seccion de la Mente</a><br/>
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki/Seccion-Astral">Seccion Astral</a>
 </b>
 </p>
 
@@ -96,7 +96,7 @@ Nota:
 -+ Lo verdaderamente importante no son las facultades, sino el despertar de tu conciencia.
 ```
 <p align="right">
-<a href="https://github.com/Ocul-LB/Projecto-LB/tree/master/kinesis"><b>Seccion de Kinesis</b></a>
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki/Seccion-de-Kinesis"><b>Seccion de Kinesis</b></a>
 </p>
 
 Tambien seria bueno escuchar `"los grandes iniciados Los Misterios de Egipto"`. Edouard Schure,  https://www.youtube.com/watch?v=N802kP328w0
