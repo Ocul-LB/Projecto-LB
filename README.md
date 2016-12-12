@@ -31,7 +31,9 @@ Este primer video corresponde a una lista de reproduccion ordenada, que te ayuda
 </p>
 
  
-Por si necesitas animarte para meditar, mirate este video https://www.youtube.com/watch?v=hdAFjl3EVG4&feature=share a mi me gusto mucho. tambien https://www.youtube.com/watch?v=f1gPJ8mXasI&t=628s (Los videos de este canal los recomiendo mas abajo cuando ayas leido profundamente las leyes hermeticas, sino algunas cosas prodrian resultarte contradictorias o confusas, asi que mejor no veas ninguno aparte de este mas si no has profundizado en el hermetismo)
+Por si necesitas animarte para meditar, mirate este video ["El Aqui y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI) (Los videos de este canal los recomiendo mas abajo cuando ayas leido profundamente las leyes hermeticas, sino algunas cosas prodrian resultarte contradictorias o confusas, asi que mejor no veas ninguno aparte de este mas si no has profundizado en el hermetismo)
+
+Si deseas ve, es interesante [Meditacion y energia](https://www.youtube.com/watch?v=hdAFjl3EVG4&feature=share)
 
 **Meditacion:** 
 > Entiendase usualmente se practican tres ideas en la meditacion *(En cualquier meditacion la persona se debe relajar, pero no te fuerzes, hazlo de manera natural, vacia tu mente, pero deja que fluja naturalmente, no oprimas tus pensamientos para no pensar)*, Hay al menos objetivos en cada una, En la **primera** Meditas para vaciar tu mente de todo pensamiento (De manera natural sin forzar la mente), y por alcanzar un estado muy elevado de conciencia, la **segunda** tu meditas para entrar en un estado conciente y empezar a buscar y comprender dentro de ti cada defecto eliminar o polarizar esos defectos (De manera natural, no te fuerces mucho a hacerlo), y la **tercera** es que tu meditas para transmutar tus energias, bien sea ki, psi, sexual, esto para que tu intimo te ayude a eliminar los defectos encontrados en la "segunda meditacion" (Insisto, todo de manera muy natural, sin sobre esforzarse).
