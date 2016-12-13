@@ -137,7 +137,7 @@ Haced la gran obra, ayudad pues a despertar a las masas, pasad los valiosísimos
 
 > [Amos del Mundo](https://www.youtube.com/watch?v=7KfPRfFJbx0) (Contiene información sobre las sociedades secretas.) <br/>
 
-> https://www.youtube.com/watch?v=RzOcMiJZKmE (Complemento de las sociedades secretas) <br/>
+> [La verdad sobre el dinero](https://www.youtube.com/watch?v=RzOcMiJZKmE) (Complemento de las sociedades secretas) <br/>
  
 <hr/>
 > **NOTA**: No te vuelvas dogmático, paranoico, fantaseador, hablador (cállate y aprende), y tampoco maestro al instante (maestro seras a tu tiempo cuando seas maestro de tus pensamientos, palabras y aprendas a vivir con el silencio){Esto anterior lo menciono porque he visto hechos que no llevan cuatro meses de estar en algo curso esotérico y ya quieren guiar a otro cuando ellos no saben para donde van}, lleva todo con calma hasta madures de espíritu... *Otra cosilla*: Un sello mágico es solo lo que tu creas que es y hace lo que tu creas que hace con tu magia y lo activas con tu fe(la fe la entenderás con el principio de mentalismo en las leyes hermeticas), dicho de otra forma no hace falta tal sello para hacer algo, al menos bajo mi punto de vista.... <br/>
