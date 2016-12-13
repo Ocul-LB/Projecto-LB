@@ -13,7 +13,7 @@ Leed todo en orden, no saltes vídeos sino puedes acabarte confundiendo con las 
 <br/>*<p align="right"> El Kybalion.</p>*
 ## Introducción
 
-El despertar de la conciencia del ser humano es realmente importante, según estudios científicos, el humano promedio tiene aproximadamente 3% de conciencia y 97 % de subconsciente, por lo tanto es correcto afirmar que el ser humano es un robot viviente. Despertando la conciencia el robot transciende, sale del sueño, deja de ser el animal intelectual, y se convierte en intelectual (Hacemos referencia al intelecto en sabiduría, No al termino que la sociedad aclama, que básicamente hace alusión a, llenarse de conocimiento y libros sin sentido, en la mayoría de la veces con el fin de tener un cartón y presumir... es mil veces mas profundo.).
+El despertar de la conciencia del ser humano es realmente importante, según estudios científicos, el humano promedio tiene aproximadamente 3% de conciencia y 97 % de subconsciente, por lo tanto es correcto afirmar que el ser humano es un robot viviente. Despertando la conciencia el robot transciende, sale del sueño, deja de ser el animal intelectual, y se convierte en intelectual (Hacemos referencia al intelecto en sabiduría, No al termino que la sociedad aclama, que básicamente hace alusión ha llenarse de saberes y libros sin sentido, en la mayoría de la veces con el fin de tener un cartón y presumir. Sin embargo la sabiduría es mil veces mas profunda).
 
 Si algo te parece raro o contradictorio con tus ideologías, debes saber que todo es energía, todo vibra, todo esta en movimiento, esto lo puedes comprobar con la ecuación de "A. Einsten" o viendo vídeos de física cuántica.
 
