@@ -132,8 +132,9 @@ Haced la gran obra, ayudad pues a despertar a las masas, pasad los valiosísimos
 
 **Vídeos De interés** (No son necesarios, solo por gusto) <br/>
 
+
+> [El oscuro mundo del **** Parte 4](https://www.youtube.com/watch?v=v5Fw9pS3VHk&t) y [Parte 5](https://www.youtube.com/watch?v=Zu-5fDfCS1Q) (ADVERTENCIA: CONTENIDO MUY FUERTE, Nota: los Masones son un grupo que se enfocan en el trabajo de la alquimia, sin embargo las sociedades secretas parece que se han centrado en difamarlos, utilizando su nombre en sus cultos y estupideces enfermizas, si consultáis a fondo de su doctrina, esta basada en los mismos principios de las tantas culturas sabias que nos precedieron.)<br/>
 > [Amos del Mundo](https://www.youtube.com/watch?v=7KfPRfFJbx0) (Contiene información sobre las sociedades secretas.) <br/>
-> [El oscuro mundo del **** Parte 4](https://www.youtube.com/watch?v=v5Fw9pS3VHk&t) y [Parte 5](https://www.youtube.com/watch?v=Zu-5fDfCS1Q) (ADVERTENCIA: CONTENIDO MUY FUERTE, Nota: los Masones son un grupo que se enfocan en el trabajo de la alquimia, sin embargo las sociedades secretas parece que se han centrado en difamarlos, utilizando su nombre en sus cultos y estupideces enfermizas, si consultáis a fondo de su doctrina, esta basada en los mismos principios de las tantas culturas sabias que nos precedieron.)
 > https://www.youtube.com/watch?v=RzOcMiJZKmE (Complemento de las sociedades secretas) <br/>
  
 <hr/>
