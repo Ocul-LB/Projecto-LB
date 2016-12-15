@@ -31,7 +31,7 @@ Este primer vídeo corresponde a una lista de reproducción ordenada, es necesar
 </p>
 
  
-Por si necesitas animarte para meditar, mira ["(Vídeo 2)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI) (Los vídeos de este canal los recomiendo mas abajo cuando hayas leído profundamente las leyes herméticas, sino algunas cosas podrían resultarte contradictorias o confusas, así que mejor no veas ninguno aparte de este mas si no has profundizado en el hermetismo)
+Por si necesitas animarte para meditar, mira ["(Vídeo 2)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI) y  otro que te sugiero veas es ["(Vídeo 2.1)Aprende a relajarte totalmente"](https://www.youtube.com/watch?v=ARqBlP_JjSM) (Los vídeos de ambos canales los recomiendo mas abajo, cuando hayas leído profundamente las leyes herméticas, sino algunas cosas podrían resultarte contradictorias o confusas, así que mejor no veas ninguno aparte de este mas si no has profundizado en el hermetismo)
 
 Si deseas ve, [(Vídeo Opcional)Meditación y energia](https://www.youtube.com/watch?v=hdAFjl3EVG4&feature=share), resulta un poco interesante.
 
