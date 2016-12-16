@@ -27,7 +27,7 @@ Te recuerdo que todos los vídeos aquí, es posible que en un futuro tengas que 
 Este primer vídeo corresponde a una lista de reproducción ordenada, es necesario que veas todos los vídeos y los comprendas. Inicia desde aquí ["(Vídeo 1)El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Allí se trabaja la meditación, muerte del ego, alquimia y preparación para las salidas en cuerpo astral o proyección de la conciencia en planos superiores)
 
 <p align="center">
-<img src="https://i.imgur.com/pivfYme.jpg?1" title="Carl Jung" height="300" width="400">
+<img src="https://i.imgur.com/DWWiyMb.png" title="Carl Jung" height="300" width="400">
 </p>
 
  
