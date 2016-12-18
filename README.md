@@ -1,7 +1,7 @@
 <img align="right" src ="https://i.imgur.com/8meLXW7.jpg" width="100" height="100"/>
 # Projecto-LB 1.1.0
 
-**Estas son recomendaciones** cuyo objetivo es ayudarte al despertar de la conciencia, la iniciación en el mundo del esoterismo, ocultismo, misterios menores etc.<br>
+**Estas son recomendaciones** cuyo objetivo es ayudarte al despertar de la conciencia
 
 <p align="center">
 <img src="https://i.imgur.com/XjNHJcO.jpg" title="Lao Tse">
