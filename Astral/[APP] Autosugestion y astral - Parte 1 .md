@@ -26,7 +26,7 @@ Ahora viene la parte interesante, vamos a configurar la app para terminar la exp
 |:---------------:	|:-----------------:	|
 |  <img src="https://i.imgur.com/B8Ch5t5.jpg" height=500px>	| <img src="https://i.imgur.com/ad5mNeR.jpg" height=500px> |
 
-Lo que haremos sera dirigirnos a **Sonido del totem**, una vez alli seleccionaremos el sonido que nos guste y despues procedemos a configurar los **avisos de realidad diarios**, hace lo que mencionaba anteriormente en el ["punto numero 2"](https://github.com/Ocul-LB/Projecto-LB/new/master/Astral#punto2), por lo tanto configuramos las horas y la cantidad de veces que deseamos advertinos.
+Lo que haremos sera dirigirnos a **Sonido del totem**, una vez alli seleccionaremos el sonido que nos guste y despues procedemos a configurar los **avisos de realidad diarios**, hace lo que mencionaba anteriormente en el ["punto numero 2"](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/[APP]%20Autosugestion%20y%20astral%20-%20Parte%201%20.md#punto2), por lo tanto configuramos las horas y la cantidad de veces que deseamos advertinos.
 
 | Seleccionado tono	| Configurando horas del dia 	|
 |:---------------:	|:-----------------:	|
