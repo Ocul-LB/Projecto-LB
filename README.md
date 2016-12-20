@@ -1,5 +1,6 @@
-<img align="right" src ="https://i.imgur.com/8meLXW7.jpg" width="100" height="100"/>
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
 # Projecto-LB 1.1.0
+<img align="right" src ="https://i.imgur.com/8meLXW7.jpg" width="100" height="100"/>
 
 **Estas son recomendaciones** cuyo objetivo es ayudarte al despertar de la conciencia
 
