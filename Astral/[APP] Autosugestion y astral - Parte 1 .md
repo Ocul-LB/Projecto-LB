@@ -4,6 +4,8 @@ Author: **Yo** <a href="https://github.com/Ocul-LB/Projecto-LB/wiki">
 
 Se me ocurrio un dia mezclar la **clave sol** (Es un metodo que utilizan los gnosticos, consiste en estarce preguntando cuestionando de la realidad cada cierto tiempo, y preguntar, `"¿estoy en el cuerpo fisico o en el astral?"`, en efecto se debe halar el dedo y si se estira (se alarga o cambia de tamaño) entonces significa que estamos en el cuerpo astral, o tambien dar un salto con la intencion de saber si se queda flotando. ) con tecnologia, de la siguiente forma.
 
+**Importante: **La idea fundamental de esta informacion va dirigida a las personas que estan practicando la muerte del ego, y la transmutacion de energia (Si aun no has iniciado, te recomiendo veas la primera parte del [Projecto-LB](https://github.com/Ocul-LB/Projecto-LB/blob/master/README.md))
+
 ### Teoria
 
 Les pretendo enseñar una App para andriod que permite hacer esto, pero antes quiero que comprendan el funcionamiento para autogestionarse correctamente.
@@ -11,6 +13,11 @@ Les pretendo enseñar una App para andriod que permite hacer esto, pero antes qu
 1. Busque un sonido corto (Tambien puede revisar los que incluye la App), asegurate de que no te suene de nada familiar, pero tambien debe gustarte y llamarte la atencion.
 <div id="punto2"/>
 2. Ahora lo que va a suceder es que vamos a reproducir ese sonido de manera aleatoria durante todo el dia como sea posible, por ejemplo: de 7 AM a 8 PM, unas 50 veces durante todo el dia. Cada vez que escuchemos el sonido, vamos a cuestionarnos de la realidad fisica y a halarnos el dedo, si este NO se estira es que estamos en el mundo fisico y por lo tanto vamos a seguir tranquilos. **Nota: No mantengan concetrados en el sonido, despejad la mente, solo debeis estar en el presente no pensando en que ya vendra el momento de halaros el dedo**
+
+**Dato de interes para los que practican la muerte del ego** si tienen problemas con deseos lujuriosos o cualquier deseo excesivo impulsivo (que no pueden controlar) o que los atormenta en los sueños, pueden probar lo siguiente:
+
+Cada vez que vean o sientan algo que activa su centro del deseo extremista, como `una imagen`, `persona` o lo que sea que los sobresalte (o que este familiarizado son los sueños que no desean tener), prueben halarse el dedo. <br/>
+Ejemplo: Quieres dejar la lujuria pero en los sueños esta siempre esta presente y no te deja de molestar, entonces en el plano fisico ves una imagen de una mujer o un hombre muy sexy y resulta tentativo, di, "que tonteria, ¿donde estoy?, ¿estoy en el mundo fisico? y halate el dedo.", empieza a jugar tus debilidades a favor.
 
 _No lo olviden:_
 > Ya deben tener grabado en su mente, si me halo el dedo y se estira estoy en el mundo astral, o si salto y quedo flotando.
@@ -63,5 +70,7 @@ Lo primero que les aparece sera un panel, en donde podran bajarle el volumen al 
 |  <img src="https://i.imgur.com/kUoAjY5.jpg" height=500px>	| <img src="https://i.imgur.com/XnWGXyV.jpg" height=500px> |
 
 Mi recomendacion si vais a usar auriculares (dependiende de si son originales y suenan fuerte o si son genericos y su sonido es bajo), para auriculares originales con sonido fuerte, entre 4 a 5% de sonido multimedia y para auriculares de sonido bajo entre 6 a 7% (Esta tambien varia de acuerdo a la forma de los auriculares y tu capacidad auditiva).
+
+Una vez salgan en cuerpo astral concientemente, entonces concentresen en sus latidos del corazon, y pronuncien el mantram "cristo", de manera alargada, crrrriiiisssssttttoooo, y pidan a su intimo que los lleve con un maestro de luz
 
 Saludos.
