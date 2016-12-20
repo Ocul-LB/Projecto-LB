@@ -1,4 +1,5 @@
 Autor: **Fallen Angel**
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
 ##Control de Pensamientos
 
 Toma asiento en una silla confortable o acostado en un sofá. Relaja todo el cuerpo, cierra tus ojos y observa la cadena de tus pensamientos por cinco minutos, tratando de retenerlos.

@@ -1,4 +1,5 @@
 Autor: **Fallen Angel**
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
 ##Axiomas Hermeticos
 
 *"La posesión del conocimiento, si no va acompañada por una manifestación y expresión en la práctica y en la obra, es lo mismo que el enterrar metales preciosos: una cosa vana e inútil. El conocimiento, lo mismo que la fortuna, deben emplearse. La ley del uso es universal, y el que la vida sufre por haberse puesto en conflicto con las fuerzas naturales".*

@@ -1,4 +1,5 @@
 Autor: **Dark._Cloud**
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
 ##Proyeccion Astral Manteniendo la consciencia
 
 La proyección astral también llamada desdoblamiento o viaje, no es mas que el proceso mediante el cual el cuerpo astral sale del cascaron fisico y accede al plano astral. Todos tenemos viajes astrales, pero no somos conscientes de los mismos y caemos en el sueño. El secreto para lograr un viaje astral consciente radica en la consciencia, pero ¿Cómo logramos mantenernos conscientes? hay diversos factores que tenemos que tomar en cuenta.

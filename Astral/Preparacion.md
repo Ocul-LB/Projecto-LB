@@ -1,4 +1,5 @@
 Autor: **Kael**
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
 ##Preparacion para salir en astral
 
 La práctica de la salida astral comienza meses antes de su realización efectiva. Sólo un organismo y un espíritu bien entrenado por las técnicas preparatorias podrá llegar a su objetivo, protegido y con la certeza de no haber vencido un simple y banal episodio de sugestión. Es esencial el aprender el arte de la relajación, y la respiración controlada, la concentración, la visualización, la memoria, y la proyección de la voluntad. Todas estas prácticas son importantes de desarrollarlas para tener una salida astral real y efectiva.
