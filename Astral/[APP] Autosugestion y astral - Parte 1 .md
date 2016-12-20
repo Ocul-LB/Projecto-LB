@@ -36,7 +36,7 @@ Por ultimo vamos a **pista de sueños** y alli seleccionamos las horas y veces q
 
 ### ADVERTENCIA: 
 
-**Se recomiendo utilizar el telefono el modo Avion** (Con la señales de wifi y de las simcards apagadas), bajo ningunca circunstancia se debe dejar conectado el telefono a la corriente
+**Se recomienda utilizar el telefono el modo Avion** (Con la señales de wifi y de las simcards apagadas), bajo ningunca circunstancia se debe dejar conectado el telefono a la corriente, y con una carga de bateria superior al 40%.
 
 | Configurando horas de la noche	|
 |:---------------:	|
