@@ -18,4 +18,4 @@ Aqui te mostraremos algunos metodos utilizados para las practidas de desdoblamie
 7. [Tecnicas Visuales para salir en astral](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/Tecnicas%20Visuales%20para%20salir%20en%20astral.md)
 8. [Entidades Parasitarias Energeticas (Larvas Astrales)](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/Entidades%20Parasitarias%20Energeticas%20%28Larvas%20Astrales%29.md)
 9. [Lugares en el plano astral](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/Lugares%20en%20el%20plano%20astral.md)
-10. [[APP para andriod] Autosugestion y astral - Parte 1](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/[APP]%20Autosugestion%20y%20astral%20-%20Parte%201%20.md)
+10. [[APP para android] Autosugestion y astral - Parte 1](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/[APP]%20Autosugestion%20y%20astral%20-%20Parte%201%20.md)
