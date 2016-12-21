@@ -64,7 +64,7 @@ Se han dado tambien casos de gente que a tenido problemas fisicos y que cuando l
 Tambien pueden ocasionar transtornos energeticos,ya que son cuerpos energeticos extraños a nosotros,como pequeños bloqueos,etc.
 
 Bueno,podria seguir ampliando la informacion,pero creo que es bastante para disipar las dudas,solo repetire y recalcare que es bastante complejo adquirir uno de estos seres,asi por que si.
-Y en el caso que penseis que teneis uno,hay que destruirlo,son tremendamente dañinos en muchos aspectos como estais viendo,se dice que algunas mujeres se encariñan y protejen a estos seres subconscientemente,por el instinto maternal etc,etc.
+Y en el caso que penseis que teneis uno,hay que destruirlo,son tremendamente dañinos en muchos aspectos como estais viendo,se dice que algunas mujeres se encariñan y protejen a estos seres subconscientemente,por el instinto maternal,etc.
 Tampoco es la primera vez que oigo a un "clarividente" que se ha "encariñado" con uno de estos seres,reitero,no son gatitos,no son juguetes,ni amigos imaginarios,si os encontrais a uno,destruirlo...
 
 Bibliografia:Me documente bastante de estos seres en su momento,lo mas esclarecedor que encontre fue de Samuel sagan,lo demas es experiencia personal.
