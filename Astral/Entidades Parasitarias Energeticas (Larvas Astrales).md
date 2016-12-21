@@ -59,7 +59,7 @@ Se ha dicho que algunos niños con "habilidades especiales" los detectan aveces,
 
 Normalmente estos seres se alimentan de nuestra "energia vital" o cuerpo eterico.
 manipulan nuestra mente para que tengamos cierto tipo de "antojos" que suelen ser los que ellos prefieren,beber,sexo,azucar etc.
-Pueden llegar a ocasionar traumas mas serios como depresiones,trastornos de personalidad etc,pero odviamente no en todos los casos,para eso se necesita mucho tiempo,y ha de ser en mi opinion un ente impregnado en sustancia eterica del fallecido,y mas bien en personas con carecter mas bien debil o sumiso.
+Pueden llegar a ocasionar traumas mas serios como depresiones,trastornos de personalidad etc,pero ciertamente no en todos los casos,para eso se necesita mucho tiempo,y ha de ser en mi opinion un ente impregnado en sustancia eterica del fallecido,y mas bien en personas con carecter mas bien debil o sumiso.
 Se han dado tambien casos de gente que a tenido problemas fisicos y que cuando les han quitado a estos seres han dejado de tenerlos,pero son casos extremos,en general se contentan manipularnos,debilitarnos y que adquiramos algun tipo de adiccion.
 Tambien pueden ocasionar transtornos energeticos,ya que son cuerpos energeticos extraños a nosotros,como pequeños bloqueos,etc.
 
