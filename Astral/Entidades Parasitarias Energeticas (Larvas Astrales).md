@@ -2,7 +2,7 @@ Autor: **Fallen Angel**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
 
 Mucho se ha hablado de los parasitos astrales,mas comunmente conocidos como "larvas astrales".
-He decidido postear un poco de informacion de estos seres y que sea entendida para TODOS,asi que escribire largo y tendido sobre este tema,y espero resolver asi las dudas mas comunes y basicas,que son,como nos afectan,que trastornos pueden ocasionarnos etc.
+He decidido postear un poco de información de estos seres y que sea entendida para TODOS,asi que escribiré largo y tendido sobre este tema,y espero resolver asi las dudas mas comunes y basicas,que son,como nos afectan,que trastornos pueden ocasionarnos etc.
 De momento solo abordare el tema de los "fragmentos astrales" que es en si el tipo de parasito mas comun y al que mas estamos expuesto en mi opinion,los hay de mas tipos,pero eso los tratare mas adelante o en otro post.
 
 ##¿Que son estos seres y como se forman?
