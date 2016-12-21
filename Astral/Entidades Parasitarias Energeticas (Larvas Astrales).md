@@ -70,3 +70,5 @@ Tampoco es la primera vez que oigo a un "clarividente" que se ha "encariñado" c
 Bibliografia:Me documente bastante de estos seres en su momento,lo mas esclarecedor que encontre fue de Samuel sagan,lo demas es experiencia personal.
 
 Un saludo  Smile 
+
+Edicion por: **YO**, Sugiero ver la publicacion (Limpierza energetica)https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/Limpieza%20Energetica.md
