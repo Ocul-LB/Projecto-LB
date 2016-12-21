@@ -71,4 +71,4 @@ Bibliografia:Me documente bastante de estos seres en su momento,lo mas esclarece
 
 Un saludo  Smile 
 
-Edicion por: **YO**, Sugiero ver la publicacion (Limpierza energetica)https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/Limpieza%20Energetica.md
+Edicion por: **YO**, Sugiero ver la publicacion [Limpierza energetica](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/Limpieza%20Energetica.md)
