@@ -113,10 +113,12 @@ Importantes, los siguientes vídeos solo míralos preferiblemente después de ha
 
   1. [(Vídeo 7)Espiritualidad según Lao Tse](https://www.youtube.com/watch?v=Pjfkxw36P_s&t)
   2. [(Vídeo 8)La religión Según Lao Tse](https://www.youtube.com/watch?v=yijRIjELQ9g)
- 
-2. [(Vídeo 9)El Ego](https://www.youtube.com/watch?v=uN6Wxr2bQ8I) (*__No__ lo veas si tu __NO__ has aprendido en profundidad las leyes hermeticas*, Aqui se habla Sobre el ego, sin embargo hay una afirmación "el ego no se puede eliminar", es solo una percepción, el autor lo trata como la ley hermetica de los polos, ya que todo lo opuesto difiere solo en grados, entonces para el no se esta eliminando se esta polarizando, ustedes llamenlo eliminar el ego o polarizar, como desean y sientan que es mejor, mas no se irriten ni se confundan por esta idea, por eso insisto en que lean las leyes hermeticas sino esto les parece muy contradictorio... EL ego es malo, deberían polarizarlo o eliminarlo, esto lo han enseñado innumerables maestros, no tienen que vivir con el.)
+  
+2. [Eleva Tu Nivel De Conciencia Ahora Mismo](https://www.youtube.com/watch?v=7tKkw94APw0) 
 
-3. [(Vídeo 10)El poder de la Mente](https://www.youtube.com/watch?v=zupOEzsTwdY) (opcional e interesante: si has trabajado con telekinesis te vendrá de maravilla este vídeo)
+3. [(Vídeo 9)El Ego](https://www.youtube.com/watch?v=uN6Wxr2bQ8I) (*__No__ lo veas si tu __NO__ has aprendido en profundidad las leyes hermeticas*, Aqui se habla Sobre el ego, sin embargo hay una afirmación "el ego no se puede eliminar", es solo una percepción, el autor lo trata como la ley hermetica de los polos, ya que todo lo opuesto difiere solo en grados, entonces para el no se esta eliminando se esta polarizando, ustedes llamenlo eliminar el ego o polarizar, como desean y sientan que es mejor, mas no se irriten ni se confundan por esta idea, por eso insisto en que lean las leyes hermeticas sino esto les parece muy contradictorio... EL ego es malo, deberían polarizarlo o eliminarlo, esto lo han enseñado innumerables maestros, no tienen que vivir con el.)
+
+4. [(Vídeo 10)El poder de la Mente](https://www.youtube.com/watch?v=zupOEzsTwdY) (opcional e interesante: si has trabajado con telekinesis te vendrá de maravilla este vídeo)
 
 ### Cuarta Parte (El principio el despertar)
 
