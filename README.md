@@ -124,7 +124,8 @@ Importantes, los siguientes vídeos solo míralos preferiblemente después de ha
 
 5. [(Vídeo 10)El poder de la Mente](https://www.youtube.com/watch?v=zupOEzsTwdY) (opcional e interesante: si has trabajado con telekinesis te vendrá de maravilla este vídeo)
 <div id="Parte4"/>
-### Cuarta Parte (El principio el despertar) 
+
+###Cuarta Parte (El principio el despertar) 
 
 A partir de este momento ya sois aves libres, solo queda ofrecerles nuestras ultimas recomendaciones
 
