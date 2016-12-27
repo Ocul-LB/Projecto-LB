@@ -47,9 +47,9 @@ Por ultimo vamos a **pista de sueños** y alli seleccionamos las horas y veces q
 
 **Seria prudente utilizar auriculares con cable bastante largo cuando se vaya a utilizar en la noche**
 
-| Configurando horas de la noche	|
-|:---------------:	|
-|  <img src="https://i.imgur.com/Amw4B5k.jpg" height=500px>	|
+| Configurando horas de la noche	| Configurando Sonido de la noche |
+|:---------------:	| :----------------------|
+|  <img src="https://i.imgur.com/Amw4B5k.jpg" height=500px>	|  <img src="https://i.imgur.com/twunoMb.jpg" height=500px> |
 
 ### Configuracion del sonido nocturno (Opcional)
 
