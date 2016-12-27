@@ -51,7 +51,7 @@ Por ultimo vamos a **pista de sueños** y alli seleccionamos las horas y veces q
 |:---------------:	|
 |  <img src="https://i.imgur.com/Amw4B5k.jpg" height=500px>	|
 
-### Configuracion del sonido nocturno
+### Configuracion del sonido nocturno (Opcional)
 
 Llegados a este punto ustedes deben decidir si van a utilizar el sonido del altavos del telefono o unos auriculares para cuando vayan a dormir.
 
