@@ -69,7 +69,9 @@ Lo primero que les aparece sera un panel, en donde podran bajarle el volumen al 
 |:---------------:	|:-----------------:	|
 |  <img src="https://i.imgur.com/kUoAjY5.jpg" height=500px>	| <img src="https://i.imgur.com/XnWGXyV.jpg" height=500px> |
 
-Mi recomendacion si vais a usar auriculares (dependiende de si son originales y suenan fuerte o si son genericos y su sonido es bajo), para auriculares originales con sonido fuerte, entre 4 a 5% de sonido multimedia y para auriculares de sonido bajo entre 6 a 7% (Esta tambien varia de acuerdo a la forma de los auriculares y tu capacidad auditiva).
+### Ultimas recomendaciones
+
+Si vais a usar auriculares (dependiende de si son originales y suenan fuerte o si son genericos y su sonido es bajo), para auriculares originales con sonido fuerte, entre 4 a 5% de sonido multimedia y para auriculares de sonido bajo entre 6 a 7% (Esta tambien varia de acuerdo a la forma de los auriculares y tu capacidad auditiva).
 
 Una vez salgan en cuerpo astral concientemente, entonces concentresen en sus latidos del corazon, y pronuncien el mantram `"cristo"`, de manera alargada, `crrrriiiisssssttttoooo`, y pidan a su intimo que los lleve con un maestro de luz
 
