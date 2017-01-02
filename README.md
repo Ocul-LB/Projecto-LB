@@ -137,20 +137,21 @@ A partir de este momento ya sois aves libres, solo queda ofrecerles nuestras ult
 **_"¡Oh, no dejes que se extinga la llama!  Protegida edad tras edad en su oscura caverna en sus santos templos 
 cuidada. ¡no dejes que se extinga la llama!". El Kybalion<br/>
 Haced la gran obra, ayudad pues a despertar a las masas, pasad los valiosísimos conocimientos cuando hayáis madurado espiritualmente_**
+<hr/>
 <div id="Interes"/>
-**Vídeos De interés** (No son necesarios, solo por gusto) <br/>
+### Vídeos De interés  (Informacion acerca de las elites, sociedades secretas, etc.) <br/>
 
->[Lo que debes saber de los roschild](https://www.youtube.com/watch?v=OwhablPzATE)<br/>
+* [Lo que debes saber de los roschild](https://www.youtube.com/watch?v=OwhablPzATE)<br/>
 
->[El progreso de nuestra raza parte 2](https://www.youtube.com/watch?v=IqJtn2hK1t4) (Informacion sobre el retraso tecnologico y la elite)<br/>
+* [El progreso de nuestra raza parte 2](https://www.youtube.com/watch?v=IqJtn2hK1t4) (Informacion sobre el retraso tecnologico y la elite)<br/>
 
->[El progreso de nuestra raza parte 3](https://www.youtube.com/watch?v=6sTP0U8aifg) (Informacion de los atentados de falsa bandera, contaminacion y mas acerca de la elite)<br/>
+* [El progreso de nuestra raza parte 3](https://www.youtube.com/watch?v=6sTP0U8aifg) (Informacion de los atentados de falsa bandera, contaminacion y mas acerca de la elite)<br/>
 
->[El oscuro mundo del **** Parte 4](https://www.youtube.com/watch?v=v5Fw9pS3VHk&t) y [Parte 5](https://www.youtube.com/watch?v=Zu-5fDfCS1Q) (ADVERTENCIA: CONTENIDO MUY FUERTE, Nota: los Masones son un grupo que se enfocan en el trabajo de la alquimia, sin embargo las sociedades secretas parece que se han centrado en difamarlos, utilizando su nombre en sus cultos y estupideces enfermizas, si consultáis a fondo de su doctrina, esta basada en los mismos principios de las tantas culturas sabias que nos precedieron.) <br/>
+* [El oscuro mundo del **** Parte 4](https://www.youtube.com/watch?v=v5Fw9pS3VHk&t) y [Parte 5](https://www.youtube.com/watch?v=Zu-5fDfCS1Q) (ADVERTENCIA: CONTENIDO MUY FUERTE, Nota: los Masones son un grupo que se enfocan en el trabajo de la alquimia, sin embargo las sociedades secretas parece que se han centrado en difamarlos, utilizando su nombre en sus cultos y estupideces enfermizas, si consultáis a fondo de su doctrina, esta basada en los mismos principios de las tantas culturas sabias que nos precedieron.) <br/>
 
->[Amos del Mundo](https://www.youtube.com/watch?v=7KfPRfFJbx0) (Contiene información sobre las sociedades secretas.) <br/>
+* [Amos del Mundo](https://www.youtube.com/watch?v=7KfPRfFJbx0) (Contiene información sobre las sociedades secretas.) <br/>
 
->[La verdad sobre el dinero](https://www.youtube.com/watch?v=RzOcMiJZKmE) (Complemento de las sociedades secretas) <br/>
+* [La verdad sobre el dinero](https://www.youtube.com/watch?v=RzOcMiJZKmE) (Complemento de las sociedades secretas) <br/>
  
 <hr/>
 > **NOTA**: No te vuelvas dogmático, paranoico, fantaseador, hablador (cállate y aprende), y tampoco maestro al instante (maestro seras a tu tiempo cuando seas maestro de tus pensamientos, palabras y aprendas a vivir con el silencio){Esto anterior lo menciono porque he visto hechos que no llevan cuatro meses de estar en algo curso esotérico y ya quieren guiar a otro cuando ellos no saben para donde van}, lleva todo con calma hasta madures de espíritu... *Otra cosilla*: Un sello mágico es solo lo que tu creas que es y hace lo que tu creas que hace con tu magia y lo activas con tu fe(la fe la entenderás con el principio de mentalismo en las leyes hermeticas), dicho de otra forma no hace falta tal sello para hacer algo, al menos bajo mi punto de vista.... <br/>
