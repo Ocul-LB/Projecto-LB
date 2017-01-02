@@ -69,7 +69,6 @@ Me cuido cuando busco equilibrio"
 ```
 para de adentrarse en la segunda parte aspiro que hayan visto todos los vídeos propuestos anteriormente, o al menos la serie "El Despertar De La Conciencia"
 
-<br/>
  <div id="Parte2"/>
 ### Segunda parte (El universo y la Mente)
 Los invito a tomar una noción básica de las leyes herméticas (leyes casi no debatibles ante la física moderna, salvo algunas como el karma o dharma)
