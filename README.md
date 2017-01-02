@@ -144,6 +144,8 @@ Haced la gran obra, ayudad pues a despertar a las masas, pasad los valiosísimos
 
 >[Amos del Mundo](https://www.youtube.com/watch?v=7KfPRfFJbx0) (Contiene información sobre las sociedades secretas.) <br/>
 
+>[Lo que debes saber de los roschild](https://www.youtube.com/watch?v=OwhablPzATE)
+
 >[La verdad sobre el dinero](https://www.youtube.com/watch?v=RzOcMiJZKmE) (Complemento de las sociedades secretas) <br/>
  
 <hr/>
