@@ -2,7 +2,7 @@ Author: **Yo** <a href="https://github.com/Ocul-LB/Projecto-LB/wiki">
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
 ## Salir en cuerpo astral a traves de la autosugestion y la tecnologia [Parte 1]
 
-Se me ocurrio un dia mezclar la **clave sol** (Es un metodo que utilizan los gnosticos, consiste en estarce preguntando cuestionando de la realidad cada cierto tiempo, y preguntar, `"¿estoy en el cuerpo fisico o en el astral?"`, en efecto se debe halar el dedo y si se estira (se alarga o cambia de tamaño) entonces significa que estamos en el cuerpo astral, o tambien dar un salto con la intencion de saber si se queda flotando. ) con tecnologia, de la siguiente forma.
+Se me ocurrio un dia mezclar la **clave sol** (Es un metodo que utilizan los gnosticos, consiste en estarce preguntando cuestionando de la realidad cada cierto tiempo, y preguntar, `"¿estoy en el cuerpo fisico o en el astral?"` debes poner en duda la realidad (pues cuando estas soñando piensas que estas despierto), en efecto se debe halar el dedo y si se estira (se alarga o cambia de tamaño) entonces significa que estamos en el cuerpo astral, o tambien dar un salto con la intencion de saber si se queda flotando. ) con tecnologia, de la siguiente forma.
 
 **Importante:** La idea fundamental de esta informacion va dirigida a las personas que estan practicando la muerte del ego, y la transmutacion de energia (Si aun no has iniciado o no has leido la introduccion, te recomiendo veas la primera parte del [Projecto-LB](https://github.com/Ocul-LB/Projecto-LB/wiki))
 
