@@ -43,6 +43,8 @@ Si deseas ve, [(Vídeo Opcional)Meditación y energia](https://www.youtube.com/w
  
 Importante, para subir la vibración tu energiza, cuídate a ti mismo, lee lo siguiente [**Pasos para subir la vibración aurica**](https://github.com/Ocul-LB/Projecto-LB/blob/master/Vibracion.md) Asegúrate de alimentarte bien (Frutas, verduras, cereales... hoy día la gente casi no come alimentos beneficiosos), debes comer solamente lo necesario, no de gula, solo debes ser natural, come cuando haya que comer (El ego quiero comer a cada segundo y cuando menos se da cuenta esta repleto)... **otro dato**, porfavor no comas papitas de tienda, gaseosas, cosas refinadas (azucares, harinas, etc), chorizos de paquetes, jamones de paquete, leche de vaca, carne de cerdo, y mucha mas basura que venden procesada. Mira esto: [**Ver Imagen**](https://i.imgur.com/N21JOME.jpg) <br/>
 
+te recomiendo que escuches: [(Vídeo 2.4)La DIETA Del SER](https://www.youtube.com/watch?v=p9JDW4DyUqw)
+
 <hr/>
 Toma de conciencia, Esto lo escribió un amigo, **Kael**: <br/>
 
