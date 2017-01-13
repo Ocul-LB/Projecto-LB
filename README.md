@@ -27,14 +27,14 @@ Te recuerdo que todos los vídeos aquí, es posible que en un futuro tengas que 
 <div id="Parte1"/>
 ### Primera parte (Preparación y concientización ) 
 
-Este primer vídeo corresponde a una lista de reproducción ordenada, es necesario que veas todos los vídeos y los comprendas. Inicia desde aquí ["(Vídeo 1)El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Allí se trabaja la meditación, muerte del ego, alquimia y preparación para las salidas en cuerpo astral o proyección de la conciencia en planos superiores), **Nota: Ve viendo tambien los videos 2 - 2.1 - 2.2 ... etc**
+El primer vídeo corresponde a una lista de reproducción ordenada, es necesario que veas todos los vídeos y los comprendas. Antes de iniciar con el primero, te pido que veas ["(Vídeo 0)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI). El primero Inicia desde aquí ["(Vídeo 1)El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Allí se trabaja la meditación, muerte del ego, alquimia y preparación para las salidas en cuerpo astral o proyección de la conciencia en planos superiores) **Nota: Ve viendo tambien los videos 2 - 2.1 - 2.2 ... etc**
 
 <p align="center">
 <img src="https://i.imgur.com/DWWiyMb.png" title="Carl Jung" height="300" width="400">
 </p>
 
  
-Por si necesitas animarte para meditar, mira ["(Vídeo 2)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI) y  otro que te sugiero veas es ["(Vídeo 2.1)Aprende a relajarte totalmente"](https://www.youtube.com/watch?v=ARqBlP_JjSM), si tienes problemas con tu mente entonces mira, ["(Video 2.3)Cómo Detener A La Mente?"](https://www.youtube.com/watch?v=GIz5djgK5uY)(Los vídeos de ambos canales los recomiendo mas abajo, cuando hayas leído profundamente las leyes herméticas, sino algunas cosas podrían resultarte contradictorias o confusas, así que mejor no veas ninguno fuera de los anteriormente mencionados.)
+Por si necesitas animarte para meditar, mira ["(Vídeo 2)Aprende a relajarte totalmente"](https://www.youtube.com/watch?v=ARqBlP_JjSM), si tienes problemas con tu mente entonces mira, ["(Vídeo 2.2)Cómo Detener A La Mente?"](https://www.youtube.com/watch?v=GIz5djgK5uY)(Los vídeos de ambos canales los recomiendo mas abajo, cuando hayas leído profundamente las leyes herméticas, sino algunas cosas podrían resultarte contradictorias o confusas, así que mejor no veas ninguno fuera de los anteriormente mencionados.)
 
 Si deseas ve, [(Vídeo Opcional)Meditación y energia](https://www.youtube.com/watch?v=hdAFjl3EVG4&feature=share), resulta un poco interesante.
 
