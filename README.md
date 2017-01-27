@@ -27,7 +27,9 @@ Te recuerdo que todos los vídeos aquí, es posible que en un futuro tengas que 
 <div id="Parte1"/>
 ### Primera parte (Preparación y concientización ) 
 
-El primer vídeo corresponde a una lista de reproducción ordenada, es necesario que veas todos los vídeos y los comprendas. Antes de iniciar con el primero, te pido que veas ["(Vídeo 0)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI). El primero Inicia desde aquí ["(Vídeo 1)El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Allí se trabaja la meditación, muerte del ego, alquimia y preparación para las salidas en cuerpo astral o proyección de la conciencia en planos superiores) **Nota: Ve viendo tambien los videos 2 - 2.1 - 2.2 ... etc**
+El primer vídeo corresponde a una lista de reproducción ordenada, es necesario que veas todos los vídeos y los comprendas. Antes de iniciar con el primero, te pido que veas ["(Vídeo 0)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI). El primero Inicia desde aquí ["(Vídeo 1)El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Allí se trabaja la meditación, muerte del ego, alquimia y preparación para las salidas en cuerpo astral o proyección de la conciencia en planos superiores) **Nota: Ve viendo tambien los videos 1.1 - 2 - 2.1 - 2.2 ... etc**
+
+ve también [(vídeo 1.1)Percepción de la realidad](https://www.youtube.com/watch?v=7Ao0cdOA1no)
 
 <p align="center">
 <img src="https://i.imgur.com/DWWiyMb.png" title="Carl Jung" height="300" width="400">
@@ -76,13 +78,11 @@ para de adentrarse en la segunda parte aspiro que hayan visto todos los vídeos 
 Los invito a tomar una noción básica de las leyes herméticas (leyes casi no debatibles ante la física moderna, salvo algunas como el karma o dharma)
 [(Vídeo 3)Leyes Metafisicas](https://www.youtube.com/watch?v=q58CDOw2jnY)
 
-ve también [(vídeo 3.1)Percepción de la realidad](https://www.youtube.com/watch?v=7Ao0cdOA1no)
-
 <p align="center">
 <img src="https://i.imgur.com/xTBMPuv.jpg" title="Carl Jung" height="300" width="400">
 </p>
 
-Mira [(Vídeo 3.2)Comprendiendo al maestro Jesus](https://www.youtube.com/watch?v=7DKrJwLXYS0)
+Mira [(Vídeo 3.1)Comprendiendo al maestro Jesus](https://www.youtube.com/watch?v=7DKrJwLXYS0)
 
 Ahora seria bueno ver las leyes herméticas a fondo (este vídeo dura casi 4 horas)
 es de un maestro conocido como hermes trismegistro (en la biblia creo que se le conoce como enoc)
