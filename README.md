@@ -29,7 +29,7 @@ Te recuerdo que todos los vídeos aquí, es posible que en un futuro tengas que 
 
 El primer vídeo corresponde a una lista de reproducción ordenada, es necesario que veas todos los vídeos y los comprendas. Antes de iniciar con el primero, te pido que veas ["(Vídeo 0)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI). El primero Inicia desde aquí ["(Vídeo 1)El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Allí se trabaja la meditación, muerte del ego, alquimia y preparación para las salidas en cuerpo astral o proyección de la conciencia en planos superiores) **Nota: Ve viendo tambien los videos 1.1 - 2 - 2.1 - 2.2 ... etc**
 
-ve también [(vídeo 1.1)Percepción de la realidad](https://www.youtube.com/watch?v=7Ao0cdOA1no)
+ve también [(vídeo 1.1)Percepción de la realidad](https://www.youtube.com/watch?v=7Ao0cdOA1no)<img src="http://i.imgur.com/C8SROZJ.png" align="center" title="New" height="30" width="120">
 
 <p align="center">
 <img src="https://i.imgur.com/DWWiyMb.png" title="Carl Jung" height="300" width="400">
