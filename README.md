@@ -71,7 +71,7 @@ Me cuido cuando leo y estudio
 Me cuido cuando busco equilibrio"
  
 ```
-para de adentrarse en la segunda parte aspiro que hayan visto todos los vídeos propuestos anteriormente, o al menos la serie "El Despertar De La Conciencia"
+para adentrarse en la segunda seria muy bueno que hayan visto todos los vídeos propuestos anteriormente, o al menos la serie "El Despertar De La Conciencia", de esta forma se podrian entender mejor los temas.
 
  <div id="Parte2"/>
 ### Segunda parte (El universo y la Mente)
