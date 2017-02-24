@@ -73,6 +73,8 @@ Me cuido cuando busco equilibrio"
 ```
 para adentrarse en la segunda seria muy bueno que hayan visto todos los vídeos propuestos anteriormente, o al menos la serie "El Despertar De La Conciencia", de esta forma se podrian entender mejor los temas.
 
+Para terminar os escucha y comprende profundamente, [(Vídeo 2.5) La Parábola Más Profunda Del TAO](https://www.youtube.com/watch?v=JbwRrryEYcU)<img src="http://i.imgur.com/C8SROZJ.png" align="center" title="New" height="30" width="120">
+
  <div id="Parte2"/>
 ### Segunda parte (El universo y la Mente)
 Los invito a tomar una noción básica de las leyes herméticas (leyes casi no debatibles ante la física moderna, salvo algunas como el karma o dharma)
