@@ -1,6 +1,7 @@
 Autor:**Kael**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
-##Tecnicas para salir en astral mediante la visualizacion
+
+## Tecnicas para salir en astral mediante la visualizacion
 
 1. Imagine una imagen suya en un espejo, veinte pies por detras suyo imaginese moviendose por detras hacia el.
 2. Imagine una imagen suya en un espejo, seis pies frente a usted "Urjase" hacia el, trate de urgirse dieciocho pies sobre su cabeza fisica.
