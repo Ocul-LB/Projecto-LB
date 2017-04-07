@@ -1,7 +1,7 @@
 Contribuciones: **Kael, David Daniel, Arabela Jade, y yo**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
  
-##Entendiendo la visualizacion en la practica, doblando una cuchara 
+## Entendiendo la visualizacion en la practica, doblando una cuchara 
 
 Antes que nada, para entender lo que vamos a hablar aqui, recomiendo haber leido los dos post, *["Qué es la Visualiación y Técnicas para empezar"
 ](https://github.com/Ocul-LB/Projecto-LB/blob/master/La-Mente/Qu%C3%A9%20es%20la%20Visualiaci%C3%B3n%20y%20T%C3%A9cnicas%20para%20empezar.md)* y tambien *["Doblando una cuchara"](https://github.com/Ocul-LB/Projecto-LB/blob/master/kinesis/Practica/Doblando%20una%20Cuchara.md)*.
