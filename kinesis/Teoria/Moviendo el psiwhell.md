@@ -1,6 +1,7 @@
 Autor: **Hiwk**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
-##Moviendo el psiwhell
+
+## Moviendo el psiwhell
 
 Buenas.
 Aquí os traigo la técnica de telekinesis que yo he desarrollado y la que mejor me ha ido;
