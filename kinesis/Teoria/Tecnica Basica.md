@@ -1,7 +1,7 @@
 Autor: **Kael**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
 
-##Tecnica Basica
+## Tecnica Basica
 
 Para el que nunca practico telekinesis ni siquiera debe estar seguro si puede hacerlo. Bueno crealo porque es asi, cualquiera puede. Asi como hay algunos que juegan bien al futbol y estan en la selección nacional porque tienen talento, también hay algunos con talento para la telekinesis.
 
