@@ -1,5 +1,5 @@
 Autor: **Kael**
-<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
 #Desarrollando la Telekinesis
 
 Gracias a la telekinesis un individuo puede afectar la materia sin la necesidad de una energía tangible o acción física entre ambos cuerpos, como causar el movimiento de objetos en determinados sentidos o direcciones.

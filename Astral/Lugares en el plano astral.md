@@ -1,5 +1,5 @@
 Autor: **Uriel**
-<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio "src="https://i.imgur.com/GodtzYG.png" width=50></a>
+<a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
 ##Guia de algunos lugares en el plano astral
 
 A continuación verás la primera guía de lugares interesantes en el Mundo de los Sueños. Tan sólo es una breve muestra de lo que puedes visitar allá. Las posibilidades son prácticamente infinitas pero pretendemos ir ampliándola de forma continua. Por supuesto, tú también puedes colaborar.
