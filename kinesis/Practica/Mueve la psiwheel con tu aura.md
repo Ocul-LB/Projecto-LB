@@ -1,6 +1,7 @@
 Autor: **Laberinto**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
-##Mueve la psiwheel con tu aura.
+
+## Mueve la psiwheel con tu aura.
 
 #### ¿No puedes concentrarte bien? Entonces esto es para ti:
 
