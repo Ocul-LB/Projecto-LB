@@ -1,6 +1,8 @@
 Autor: **Yo**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
-##Aventuras fuera del cuerpo
+
+## Aventuras fuera del cuerpo
+
 <p align="center"><img src="https://i.imgur.com/EhOZKzR.png"></p>
 
 Este es un libro que en lo personal me encontre por conciencia viendo videos en youtube, y me atrevo a recomendarlo por el detalle tan riguroso con el que son escritas las experiencias del autor y sin mencionar que servira para que os animeis a realizar vuestros viajes astrales.
