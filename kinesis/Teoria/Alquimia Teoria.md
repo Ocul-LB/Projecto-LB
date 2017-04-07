@@ -1,9 +1,9 @@
 Autor: **Fallen Angel**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
-##Alquimia Teoria
+## Alquimia Teoria
 
 
-###Lección 1:
+### Lección 1:
 
 Nota:
 > (Parte del texto fue condensado del libro "El Sendero del Mago", Deepak Chopra, Grupo Edito-rial Norma, Buenos Aires, 1997, sumado a nuestras apreciaciones personales).
@@ -53,7 +53,7 @@ En la época del Rey Arturo, discípulo en espíritu de Merlín, el objetivo sup
 Dejemos que la Sabiduría Espiritual ilumine nuestro ser interior, escuchemos su voz... escuchemos la voz del Mago.
 
 
-###Lección 2
+### Lección 2
 
 
 "La magia solo retornará con el regreso de la **inocencia**. La esencia del mago es la transforma-ción". <br/>
@@ -95,7 +95,7 @@ Mira con inocencia y serás dador de vida. Recobraremos nuestra inocencia cuando
 Contémplate con los ojos llenos de amor y verás que eres una porción integra del alma de Dios.
 
 
-###Lección 3
+### Lección 3
 
 
 El Mago observa los ires y venires del mundo. Pero su alma habita en el mundo de la luz. El paisaje cambia, el observador permanece igual. El cuerpo es sólo el sitio a lo que los recuerdos llaman hogar.
