@@ -17,12 +17,14 @@ Despues de tener el cuerpo adormecido empezaran las vibraciones, las cuales **po
 
 Estamos ya en la etapa final donde empezaremos a flotar poco a poco, sensación que se puede sentir de diferentes formas. La mas conocida es la de caerse de la cama. Si logramos mantener la consciencia finalmente estaremos fuera del cuerpo astral.
 <hr/>
+
 #### Mi primera experiencia consciente:
 
 En mis inicios con los viajes astrales, usaba mantrams como el faraón y el isis, que por cierto es muy bueno. Pero las experiencias no eran tan buenas, lo que me llevo al razonamiento de que no me puedo apoyar completamente en que un mantram por si solo me sacaría. Me decidí por un método mas simple, buscar el factor que permita la proyección. Esa noche habia logrado mantener la consciencia mas tiempo de lo normal, y lo mas sorprendente fue cuando empezaron las vibraciones, se sentia como manipular una gran cantidad de ki ya que lo podía dirigir por mi cuerpo. Lo siguiente que hice fue visualizar un lugar cercano a mi casa y ahí estuve.
 
 El lugar al que me proyecte, era una escalera la cual es muy parecida a una que subo todos los días al irme a correr. Luego llegue a un bosque y un lugar idéntico a un faro, donde tuve el primer contacto con entes del astral; Era una figura de color rojo, no muy definido en características físicas. Me dijo que ese no era un lugar en el que debiera estar, por lo cual sali de ahi un poco incomodo, al ser la primera experiencia con deseos de exploracion. Logre materializar a mi mascota espiritual, con la cual viaje una parte del camino. Me propuse entrenarla aprovechando las pocas limitaciones del plano. Hasta aquí llego la experiencia en lo que pude recordar al despertar.
 <hr/>
+
 #### Conclusiones Finales:
 
 Es importante hacer énfasis en la influencia de los temores o dudas a la hora del viaje astral. Estos deben ser disipados para que en etapas finales, tengamos la certeza de que no nos pasara nada peligroso y no nos pueda afectar la experiencia. Siempre que salimos en astral regresamos a nuestro cuerpo, para los ataques de larvas o entes existen técnicas de protección; La mas usada es crear un escudo de energia.
