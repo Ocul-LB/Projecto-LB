@@ -9,6 +9,7 @@ Este metodo es un ejercio bastante sencillo (sencillo no quiere decir que sea fa
 
 Tambien he de decir antes de que sigais leyendo que esto no es como en las peliculas, que te concentras un momento y ya esta, tu cuerpo astral esta fuera dandose una vuelta y tu cuerpo fisico sigue por ahi como si nada, no es tan siemple y dudo que eso se pueda lograr, sinceramente, en todo caso este ejercicio no sirve para eso.
 <hr/>
+
 **RECOMENDACIONES**
 
 En primer lugar este ejercicio NO ES una continuacion de mi anterior post [Mi forma de salir al astra](https://github.com/Ocul-LB/Projecto-LB/blob/master/Astral/Mi%20forma%20de%20salir%20al%20astral.md) y es un ejercicio bastante **mas avanzado**,aun asi recomiendo encarecidamente leerlo detenidamente antes de hacer este, especialmente si no se tiene mucha experiencia con este tema, ya q se descartan muchos "cliches" y se explica con lujo de detalles el como y el por que de la postura, la programacion, lo sintomas etc etc
@@ -22,6 +23,7 @@ La unica cosa imprescindible para llevar a cabo este ejercicio es una voluntad m
 No es necesario hacer esta practica todas las noches, al menos que se tenga bastante tiempo libre, pero si al menos un par de veces por semana minimo, cuantas mas mejor, y aconsejo tener una libreta cerca y apuntar todo cambio, por perqueño que sea, y todo avance.
 Es una forma que a mi me ayuda mucho a seguir adelante y no tirar la toalla cuando no consigo cumplir el objetivo que me he propuesto despues de un periodo de tiempo intentandolo, ayuda a veer lo que as avanzado y donde estas fallando, hay q ser critico con uno mismo tanto en los aciertos como en los errores
 <hr/>
+
 **PRACTICA**
 
 Tumbate encima de la cama como si fueras a dormir, no te arropes, y usa ropa comoda y suelta(tienes que tener la mayor sensacion de libertad posible, tanto consciente como incoscientemente) Ponte boca arriba, con las manos en el pecho pero sin llegar a cruzarse ni juntarse en ningun momento, y estira las piernas de forma natural, un poco separadas, pero sin forzarse, lo importante es estar seguro de q estas comodo/a y q puedes estar un largo periodo de tiempo sin hacer ningun tipo de movimiento.
