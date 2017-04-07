@@ -26,6 +26,7 @@ Si algo te parece raro o contradictorio con tus ideologías, debes saber que tod
 
 Te recuerdo que todos los vídeos aquí, es posible que en un futuro tengas que volver a verlos, cuando tengas la conciencia mas abierta, entonces entenderás y descubrirás cosas que al principio te parecían raras, que no comprendías porque no sabias escuchar...
 <div id="Parte1"/>
+
 ### Primera parte (Preparación y concientización ) 
 
 El primer vídeo corresponde a una lista de reproducción ordenada, es necesario que veas todos los vídeos y los comprendas. Antes de iniciar con el primero, te pido que veas ["(Vídeo 0)El Aquí y ahora"](https://www.youtube.com/watch?v=f1gPJ8mXasI). El primero Inicia desde aquí ["(Vídeo 1)El Despertar De La Conciencia"](https://www.youtube.com/watch?v=NGY0lHVWv5s&list=PLetK2kw7DGpgcZSQKxC676u_q-RJGiTid&index=5) (Allí se trabaja la meditación, muerte del ego, alquimia y preparación para las salidas en cuerpo astral o proyección de la conciencia en planos superiores) **Nota: Ve viendo tambien los videos 1.1 - 2 - 2.1 - 2.2 ... etc**
@@ -77,6 +78,7 @@ para adentrarse en la segunda seria muy bueno que hayan visto todos los vídeos 
 Para terminar os escucha y comprende profundamente, [(Vídeo 2.5) La Parábola Más Profunda Del TAO](https://www.youtube.com/watch?v=JbwRrryEYcU)<img src="http://i.imgur.com/C8SROZJ.png" align="center" title="New" height="30" width="120">
 
  <div id="Parte2"/>
+ 
 ### Segunda parte (El universo y la Mente)
 Los invito a tomar una noción básica de las leyes herméticas (leyes casi no debatibles ante la física moderna, salvo algunas como el karma o dharma)
 [(Vídeo 3)Leyes Metafisicas](https://www.youtube.com/watch?v=q58CDOw2jnY)
@@ -119,6 +121,7 @@ Nota:
 (Vídeo opcional)También seria bueno escuchar `"los grandes iniciados Los Misterios de Egipto"`. Edouard Schure,  https://www.youtube.com/watch?v=N802kP328w0
  
 <hr/>  <div id="Parte3"/>
+
 ### Tercera Parte (Abriendo las alas)
 
 Importantes, los siguientes vídeos solo míralos preferiblemente después de haber profundizado las leyes herméticas  <br/>
@@ -141,7 +144,7 @@ Importantes, los siguientes vídeos solo míralos preferiblemente después de ha
 
 <div id="Parte4"/>
 
-###Cuarta Parte (El principio el despertar) 
+### Cuarta Parte (El principio el despertar) 
 
 A partir de este momento ya sois aves libres, solo queda ofrecerles nuestras ultimas recomendaciones
 
