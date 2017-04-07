@@ -1,6 +1,7 @@
 Autor:**Fallen Angel**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
-##Ejercicio de Proteccion
+
+## Ejercicio de Proteccion
 
 
 Este ejercicio es muy básico y consta solamente de una visualización muy simple,pero es el primer paso para ir tomando experiencia.
@@ -27,7 +28,7 @@ Este ejercicio es muy básico y consta solamente de una visualización muy simpl
 
 Este ejercicio se puede hacer a cualquier hora,en cualquier momento y todas las veces que quieras.
 
-###Como potenciarlo
+### Como potenciarlo
 
 <p align="center"><img src="http://i.imgur.com/kXM6KPQ.jpg">
 </p>
@@ -39,7 +40,7 @@ Encenderla y concentrarse en la vela durante un tiempo prolongado,al menos 5 min
 poco a poco ir bajando la respiración,y hacer el ejercicio comentado anteriormente, visualizándolo saliendo de la vela. <br/>
 Esto lo potenciara y ademas puede servir como protección del lugar de trabajo,o cualquier habitación etc.
 
-###Cosas a tener en cuenta
+### Cosas a tener en cuenta
 
 Evidentemente es una protección muy básica, adecuada para meditaciones, prácticas y trabajos sencillos<br/>
 **Edito:** Este ejercicio funciona con tus niveles de conciencia y visualizacion, solo si tu crees que puedes entonces tienes razon, pero si dejas que en tu mente se cole, "Esto es estupido no va a funcionar", entonces tienes razon.
