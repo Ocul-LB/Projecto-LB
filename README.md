@@ -13,6 +13,7 @@ Leed todo en orden, no saltes vídeos sino puedes acabarte confundiendo con las 
 *`"La posesión del conocimiento, si no va acompañada por una manifestación y expresión en la práctica y en la obra, es lo mismo que el enterrar metales preciosos: una cosa vana e inútil"`* 
 <br/>*<p align="right"> El Kybalion.</p>*
 <div id="Introduccion"/>
+
 ## Introducción
 
 
