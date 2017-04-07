@@ -1,7 +1,7 @@
 Autor:**Fallen Angel**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
 
-##Desdoblamientos con la paralisis del sueño
+## Desdoblamientos con la paralisis del sueño
 
 Hola a todos, es muy común padecer de parálisis del sueño, es algo bastante desagradable y poco agradable, no obstante es bastante sencillo desdoblarse a partir de ahí.
 
