@@ -1,7 +1,7 @@
 Autor: **Fallen Angel**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
 
-#Mi forma de salir al astral estando despierto
+# Mi forma de salir al astral estando despierto
 
 Desde hace un tiempo para atras vengo perfeccionando mi metodo de salir al astral sin que mi cuerpo y en especial mi mente se llegue a dormir totalmente.
 
