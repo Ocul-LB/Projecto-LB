@@ -1,6 +1,7 @@
 Autor: **Fallen Angel**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
-##Auto Sugestión y el misterio del Subconsciente
+
+## Auto Sugestión y el misterio del Subconsciente
 
 Antes de pasar a la descripción de cada uno de los ejercicios del segundo grado, intentaré explicar el misterio del subconsciente y su significado práctico. Así cómo la conciencia normal, que posee su morada en la alma y actúa en el cuerpo, o mejor, en la cabeza a través del cerebro, el subconsciente también es una característica de la alma y se encuentra en el cerebelo, esto es, en la parte posterior de la cabeza. Considerando su utilización práctica en la magia, estudiaremos principalmente la función psicológica del cerebelo, por tanto, del subconsciente.
 
