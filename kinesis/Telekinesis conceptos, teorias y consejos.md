@@ -1,7 +1,7 @@
 Author: **Ψ-Φ-Ẫ-Ж-Ω-ΣZIӨ-Ω-Ж-Ẫ-Φ-Ψ**
 <a href="https://github.com/Ocul-LB/Projecto-LB/wiki"><img align="right" alt="Volver al inicio" title="Volver al inicio " src="https://i.imgur.com/GodtzYG.png" width=50></a>
 
-##Telekinesis conceptos, teorias y consejos
+## Telekinesis conceptos, teorias y consejos
 
 Buenas a todos.
 
